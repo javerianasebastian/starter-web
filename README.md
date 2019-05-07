@@ -11,4 +11,4 @@ Introduction change
 
 Sample website with plenty of files for demos
 
-change purpose
+change purpose all rights reserve
